@@ -4,7 +4,7 @@ Welcome to my GitHub profile! I'm Geshan Sudasinghe.
 
 -   👋 Hi, I'm **Geshan Sudasinghe**
 -   📧 You can reach me at geshansudasinghe@gmail.com
--   💼 Connect with me on [LinkedIn](https://www.linkedin.com/in/geshan-sudasinghe/)
+-   💼 Connect with me on [LinkedIn](https://www.linkedin.com/in/geshan-sudasinghe-54bb0619b)
 
 ---
 
